@@ -1,4 +1,7 @@
-## Hi there 👋
+## "Quiet mind, curious heart—always creating, always feeling."
+
+
+![](https://komarev.com/ghpvc/?username=viraeness&color=a3b18a&abbreviated=true&label=Loyalties.&style=for-the-badge)
 
 <!--
 **viraeness/Viraeness** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
