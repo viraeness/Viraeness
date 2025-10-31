@@ -1,19 +1,13 @@
 ## "Quiet mind, curious heart—always creating, always feeling."
 
+![17618913106494819008155178756402](https://github.com/user-attachments/assets/6007725c-d014-4230-983a-c695ab3f78b5)
 
-![](https://komarev.com/ghpvc/?username=viraeness&color=a3b18a&abbreviated=true&label=Loyalties.&style=for-the-badge)
+<p align="center">
+.・。.・゜✭・.・✫・゜・。.
+</p>
 
-<!--
-**viraeness/Viraeness** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+<div align="center">
+  <img src="https://komarev.com/ghpvc/?username=viraeness&color=392a48&abbreviated=true&label=✧Loyalties.&style=plastic" alt="Profile views counter" />
+</div>
 
-Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
