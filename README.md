@@ -1,7 +1,4 @@
 
-<img width="5528" height="1638" alt="Untitled12_20251101175049" src="https://github.com/user-attachments/assets/4aa657bf-1f3f-4920-a7b3-ba8677e2e3d4" />
-
-
 
 ## "Quiet mind, curious heart—always creating, always feeling."
 ![a2e39951ae805786edb46d0d0f4c49c0](https://github.com/user-attachments/assets/9cb2d439-5ca7-4370-9569-fda86137f9e3)
