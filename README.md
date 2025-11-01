@@ -1,6 +1,6 @@
 ## "Quiet mind, curious heart—always creating, always feeling."
 
-![17618913106494819008155178756402](https://github.com/user-attachments/assets/6007725c-d014-4230-983a-c695ab3f78b5)
+![a2e39951ae805786edb46d0d0f4c49c0](https://github.com/user-attachments/assets/9cb2d439-5ca7-4370-9569-fda86137f9e3)
 
 <p align="center">
 .・。.・゜✭・.・✫・゜・。.
