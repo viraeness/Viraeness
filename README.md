@@ -1,7 +1,8 @@
 
 
 ## "Quiet mind, curious heart—always creating, always feeling."
-![a2e39951ae805786edb46d0d0f4c49c0](https://github.com/user-attachments/assets/9cb2d439-5ca7-4370-9569-fda86137f9e3)
+
+![☆ Kinich   Кинич cr _ _ @n429g (twt)](https://github.com/user-attachments/assets/a70bd8cb-fc46-455c-b087-3534a00a6fe4)
 
 <p align="center">
 .・。.・゜✭・.・✫・゜・。.
